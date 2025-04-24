@@ -1,5 +1,5 @@
 ![hippo](https://preview.redd.it/xavier-kisses-in-the-upcoming-card-v0-xemj77i53q9e1.gif?width=540&auto=webp&s=2abd328e466962e93704be1aeee73ea67f5b1200)
-<h2 text-align="center"> ₍ ᐢ. .ᐢ ₎ ,,, PLEASE INT + Things I Like</h2>
+<h2 text-align="center"> ₍ ᐢ. .ᐢ ₎ ,,, PLEASE INT + MY FANDOMS</h2>
 <p>
   <ul>
     <li>Otome games (give recs pls,,)</li>
