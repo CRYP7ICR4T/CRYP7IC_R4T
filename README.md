@@ -18,7 +18,7 @@
 <h2>₍⸍⸌̣ʷ̣̫⸍̣⸌₎ ,,, BYI + DNI </h2>
 <p>
   <ul>
-    <li>Understand that i know how to spell, let a guy be silly</li>
+    <li>Understand that i know how to spell, let a guy be silly and type bad</li>
     <li>I talk abt Xavier (and Zayne) a LOT,,,sorry</li>
     <li>Not rlly playing to make friends, but idm getting them!</li>
     <li>DNI if ur really sexual w jokes, i don't mind them but theres a limit,,</li>
